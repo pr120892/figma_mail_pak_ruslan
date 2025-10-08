@@ -1,2 +1,1 @@
-# figma_mail_pak_ruslan
-email
+pr120892@gmail.com
